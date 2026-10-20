@@ -1,4 +1,4 @@
-hey hey !! its me, mitzeroniii  smiles
+hey, its me, its lainity 
 
 
 <img width="604" height="210" alt="Ibuki-and-Kazuichi 1" src="https://github.com/user-attachments/assets/bf46667c-1ff2-4fa3-8959-71b365572fe7" />
