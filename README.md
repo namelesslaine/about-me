@@ -1,7 +1,7 @@
 hey, its me, its lainity 
 
 
-[<img width="604" height="210" alt="Ibuki-and-Kazuichi 1" src="https://github.com/user-attachments/assets/bf46667c-1ff2-4fa3-8959-71b365572fe7" />](https://i.postimg.cc/283bGMDc/kyoko.gif)
+https://i.postimg.cc/283bGMDc/kyoko.gif
 
 i like danganronpa, omori, pjsk, genshin impact, twisted wonderland, vocaloid and other vocal synths and tons more!!
 
