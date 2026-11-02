@@ -1,7 +1,7 @@
 hey, its me, its lainity 
 
 
-https://i.postimg.cc/283bGMDc/kyoko.gif
+[![kyoko.gif](https://i.postimg.cc/283bGMDc/kyoko.gif)](https://postimg.cc/svdgDn17)
 
 i like danganronpa, omori, pjsk, genshin impact, twisted wonderland, vocaloid and other vocal synths and tons more!!
 
