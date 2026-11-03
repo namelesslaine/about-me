@@ -9,6 +9,8 @@ if u wanna be moots, just say so on my ata and drop ur github!! and if u wanna b
 
 PLEASE cuddle with me it makes me so happy
 
+one of my weird things is i strongly do not want to interact with anyone that openly refers to Chihiro as a girl. this is a personal thing i have. im neurodivergent and chihiro is one of my favorite characters, so i am very opinionated on them. thank you for respecting this boundary in advance
+
 if u have any questions, just leave them on my ata and ill answer!!
 
 <img width="179" height="37" alt="6896205671526110" src="https://github.com/user-attachments/assets/3b256e94-2ba2-4f13-a0ce-b18185ac9b2c" /> <img width="180" height="37" alt="8373949299898263" src="https://github.com/user-attachments/assets/c6054a60-5e7b-41a0-9386-0c0a3249c23b" /> <img width="179" height="37" alt="36099234507809098" src="https://github.com/user-attachments/assets/ef60add5-465c-49aa-9946-7b80428ce043" /> <img width="180" height="35" alt="103019910222975588" src="https://github.com/user-attachments/assets/eef25f45-96f0-4d7b-9402-7dd5eab37d61" /> <img width="179" height="37" alt="619315386248276497" src="https://github.com/user-attachments/assets/fc7446df-3f01-4851-9939-544303b9d46e" /> <img width="180" height="37" alt="625930048212249345" src="https://github.com/user-attachments/assets/64b5c00d-1a64-4ce5-8fc8-6ac5aa22fe2d" /> <img width="180" height="37" alt="857513585307363776" src="https://github.com/user-attachments/assets/5b0713ad-7ca8-4dff-975e-8e83182761e5" /> <img width="180" height="37" alt="1136666393484482697" src="https://github.com/user-attachments/assets/31949d2b-2d99-42b1-9627-8c4d59472c5b" />
